@@ -3,7 +3,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2ju2i6hwi40p2o979nqxi2moz&cover_image=true&theme=novatorem&show_offline=false&background_color=e2d0d0&interchange=false&profanity=false&hide_remaster=false&bar_color=c4dac3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-(https://pronouns.cc/@Valx) - (https://valx.atabook.org) <---Sign pls!!
+*(https://pronouns.cc/@Valx) - (https://valx.atabook.org)* <---Sign pls!!
 
 ᛝ C+H Freely *𔓘  . .  DNC(Do not cover & do not copy!!) ദ്ദി ༎ຶ‿༎ຶ )  ᯓ. *
 
@@ -13,8 +13,10 @@
            
   Pierrot kin . Okegomie  . . Furry  .. Unemployed
     
-   ... .    . AntiProshipper    . . AntiTherian   <-- Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess.
-Thnx for reading! bai!!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾
+   ... .    . **AntiProshipper**    . . **AntiTherian**   <-- *Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess.*
+
+Thnx for reading! bai!!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ .. 
+**Credits to @deathwilltearusapart for helping me show this, encluding the spotify activity<3**
 
 <!--
 **DNCoCxHoIWC/DNCoCxHoIWC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
