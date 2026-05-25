@@ -7,16 +7,16 @@
 
 ᛝ C+H Freely *𔓘  . .  DNC(Do not cover & do not copy!!) ദ്ദി ༎ຶ‿༎ຶ )  ᯓ. *
 
-   ᛝ . Always iwc   .   .She/Her      .·°՞(っ-ᯅ-ς)՞°·. . 16 ᯓ 20+ DNI.ᐟ.ᐟ ᛝ
+   ᛝ . ***Always iwc***   .   .She/Her      .·°՞(っ-ᯅ-ς)՞°·. . **16 ᯓ 20+ DNI**.ᐟ.ᐟ ᛝ
        
-ᛝ Canadian.ᐟ INFP  -.  Atheist   .,  Lesbian & Asexual ( ꈍ◡ꈍ)
+ᛝ *Canadian.ᐟ INFP  -.  Atheist   .,  Lesbian & Asexual* ( ꈍ◡ꈍ)
            
-  Pierrot kin . Okegomie  . . Furry  .. Unemployed
+  *Pierrot kin . Okegomie  . . Furry  .. Unemployed*
     
    ... .    . **AntiProshipper**    . . **AntiTherian**   <-- *Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess.*
 
 Thnx for reading! bai!!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ .. 
-**Credits to @deathwilltearusapart(https://github.com/deathwilltearusapart) for helping me show this, encluding the spotify activity<3**
+**Credits to @deathwilltearusapart** *https://github.com/deathwilltearusapart* **for helping me show this, encluding the spotify activity<3**
 
 <!--
 **DNCoCxHoIWC/DNCoCxHoIWC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
