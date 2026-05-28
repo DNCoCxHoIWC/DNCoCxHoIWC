@@ -11,7 +11,7 @@
        
 ᛝ *Canadian.ᐟ INFP  -.  Atheist   .,  Lesbian & Asexual* ( ꈍ◡ꈍ)
            
-  *Pierrot kin . Okegomie  . . Furry  .. Unemployed*
+  *Pierrot Yume . Okegomie  . . Furry  .. Unemployed*
     
    ... .    . **AntiProshipper**    . . **AntiTherian**   <-- *Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess.*
 
