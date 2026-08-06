@@ -9,11 +9,11 @@
 
    ᛝ . ***Always iwc***   .   .She/Her      .·°՞(っ-ᯅ-ς)՞°·. . **16 ᯓ 20+ DNI**.ᐟ.ᐟ ᛝ
        
-ᛝ *Canadian.ᐟ INFP  -.  Atheist   .,  Lesbian & Asexual* ( ꈍ◡ꈍ)
+ᛝ *Canadian.ᐟ INFP  -.  Atheist   .,  Bisexual & Asexual* ( ꈍ◡ꈍ)
            
-  *Pierrot Yume . Okegomie  . . Furry  .. Unemployed*
+ *Okegomie  . . Furry  .. Unemployed*
     
-   ... .    . **AntiProshipper**    . . **AntiTherian**   <-- *Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess.*
+ **I DO NOT SUPPORT THERIANS!!**   <-- *Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess. this is not targeted to any other therians, Its just that I feel uncomfortable around them and prefer to not talk about them in general.*
 
 Thnx for reading! bai!!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ .. 
 **Credits to @deathwilltearusapart** *https://github.com/deathwilltearusapart* **for helping me show this, encluding the spotify activity<3**
