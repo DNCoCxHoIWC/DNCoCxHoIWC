@@ -1,21 +1,18 @@
-# Welcome~ (^▽) y—-ᕤ "<img width="640" height="480" alt="IcedAnime" src="https://github.com/user-attachments/assets/268c770b-9c76-4f30-a6a5-0e7dc805cf39" />
- ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔𔓘
+# 𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝖆𝖓𝖉 𝖍𝖆𝖕𝖕𝖞 𝖘𝖕𝖔𝖔𝖐𝖙𝖔𝖇𝖊𝖗! {¬ºཀ°}¬ | (WIP)
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+<img width="1000" height="625" alt="image" src="https://github.com/user-attachments/assets/9f534beb-076b-4a01-bfbd-9a403deda8a6" />
+
+𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2ju2i6hwi40p2o979nqxi2moz&cover_image=true&theme=novatorem&show_offline=false&background_color=e2d0d0&interchange=false&profanity=false&hide_remaster=false&bar_color=c4dac3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-*(https://pronouns.cc/@Valx) - (https://valx.atabook.org)* <---Sign pls!!
+*(https://pronouns.cc/@Valx) - (https://valx.atabook.org)* <--- REMAKING!!!
 
-ᛝ C+H Freely *𔓘  . .  DNC(Do not cover & do not copy!!) ദ്ദി ༎ຶ‿༎ຶ )  ᯓ. *
+𝕸𝖎𝖎𝖗𝖔𝖙𝖙𝖊𝖗
+     𝙼𝚒𝚒𝚛𝚘𝚝𝚝𝚎𝚛/ 𝙼𝚒𝚒𝚛𝚘  :  (𝙼𝙴)-(𝚁𝙾𝚃)-(𝙴𝚁) / (𝙼𝙴)-(𝚁𝙾𝚆)
 
-   ᛝ . ***Always iwc***   .   .She/Her      .·°՞(っ-ᯅ-ς)՞°·. . **16 ᯓ 20+ DNI**.ᐟ.ᐟ ᛝ
-       
-ᛝ *Canadian.ᐟ INFP  -.  Atheist   .,  Bisexual & Asexual* ( ꈍ◡ꈍ)
-           
- *Okegomie  . . Furry  .. Unemployed*
-    
- **I DO NOT SUPPORT THERIANS!!**   <-- *Got "playfully" forced to the ground and bitten during reccess- yes, they were my friends, and yes I stopped going outside for reccess. this is not targeted to any other therians, Its just that I feel uncomfortable around them and prefer to not talk about them in general.*
-
-Thnx for reading! bai!!₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ .. 
 **Credits to @deathwilltearusapart** *https://github.com/deathwilltearusapart* **for helping me show this, encluding the spotify activity<3**
 
 <!--
