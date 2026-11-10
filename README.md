@@ -1,8 +1,9 @@
-# 𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝖆𝖓𝖉 𝖍𝖆𝖕𝖕𝖞 𝖘𝖕𝖔𝖔𝖐𝖙𝖔𝖇𝖊𝖗! {¬ºཀ°}¬ | (WIP)
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
-<img width="1000" height="625" alt="image" src="https://github.com/user-attachments/assets/9f534beb-076b-4a01-bfbd-9a403deda8a6" />
+# 𝓗𝓪𝓹𝓹𝔂 𝓦𝓲𝓷𝓽𝓮𝓻!  | 
+𓆱 - (˶˘ -˘(´͈ ᵕ `͈˶) -
+<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/c80fb4b2-a1d0-48a4-88a0-7f92aedd99c0"/>
 
-𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭ ʚ𖦹ɞ 𑄝੭
+
+↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ ↟ྌ𖣂ྌ↟ྌ𖣂ྌ
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2ju2i6hwi40p2o979nqxi2moz&cover_image=true&theme=novatorem&show_offline=false&background_color=e2d0d0&interchange=false&profanity=false&hide_remaster=false&bar_color=c4dac3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
